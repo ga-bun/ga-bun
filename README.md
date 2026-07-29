@@ -8,6 +8,9 @@
 ### My experiences
 - Developer Trainee -> Junior Developer at [Zallpy](https://zallpy.com/en/)/[BMW USA](https://www.bmwusa.com)
 
-
+### My hobbies
+- RPG and virtual games
+- Movies, Animes
+- Beads.
 
 
